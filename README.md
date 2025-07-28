@@ -1,2 +1,2 @@
 # tg
-my website cultural insights
+Website Cultural Insights by Tatyana Garkavaya
